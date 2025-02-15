@@ -4,6 +4,8 @@
 
 [Hemen Randevu Alın! – TÜVTÜRK ile Güvenli ve Kolay Araç Muayenesi](https://www.kisa.link/YiTZC)
 
+[Randevu Almak İçin Tıklayınız](https://www.kisa.link/YiTZC)
+
 TÜVTÜRK, araç muayene işlemlerinde kalite, güven ve hızın adresi! Türkiye genelindeki geniş muayene istasyon ağıyla, güvenli bir şekilde aracınızın muayenesini yaptırabilir, tüm süreci kolayca takip edebilirsiniz. TÜVTÜRK randevu sistemi, sizlere zahmetsiz ve hızlı bir hizmet sunuyor.
 
 🔥 TÜVTÜRK Araç Muayenesi – Hızlı ve Güvenilir Randevu Sistemi! TÜVTÜRK, her geçen gün geliştirdiği yenilikçi hizmetleri ile araç sahiplerine mükemmel bir muayene deneyimi sunuyor. Hızlı randevu alabilir, güvenilir araç muayene işlemlerini anında gerçekleştirebilirsiniz.
